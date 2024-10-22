@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TheRealCodyBoyd
+- 👋 Hi, I’m @cboydj316
 - 👀 I’m interested in Technology, learning languages, running my own business
 - 🌱 I’m currently learning what it takes to get my bachelors in cyber security and information technology
 - 💞️ I’m looking to collaborate on mmmmmnada....
